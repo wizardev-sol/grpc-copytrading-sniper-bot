@@ -1,5 +1,5 @@
 ## Contact us
-   if you need my help, plz contact me [Telegram](https://t.me/lorine93s)
+   if you need my help, plz contact me [@vvizardev](https://t.me/vvizardev)
 
 ## About
 
